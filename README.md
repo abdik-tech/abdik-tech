@@ -1,0 +1,1 @@
+# abdik-tech
